@@ -1,2 +1,2 @@
 # ira-notes
-Collection of notes for Ira's reference. 
+Collection of notes for Ira from his favorite uncle.
